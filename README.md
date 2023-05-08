@@ -1,2 +1,2 @@
 # Bersama-Sekanja-
-coolabrasi dengan seaknja membangun Espenero gen 2 
+coolabrasi dengan skanja membangun Espenero gen baru 
